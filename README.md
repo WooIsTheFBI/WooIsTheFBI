@@ -1,0 +1,5 @@
+- Hi, I'm Basant Raj Soy
+- I go by the name of Woo online
+- I like music, video games and a bit of coding :)
+- I am interested in pursuing animation, music, drawings and coding
+- I am not proficient with any languages so far, but intend to learn (☞ﾟヮﾟ)☞
